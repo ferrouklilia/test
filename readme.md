@@ -1,0 +1,3 @@
+saluut 
+cv ?
+amek tetilid ?
